@@ -1,0 +1,2 @@
+# Punya-Yafiazkaraka
+Jangan diambil
